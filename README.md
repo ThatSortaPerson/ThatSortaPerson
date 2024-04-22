@@ -1,1 +1,1 @@
-incompetent, amateur coder
+I do stupid bullshit online - like really stupid.
